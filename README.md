@@ -1,1 +1,0 @@
-# telefonopyqtc8
